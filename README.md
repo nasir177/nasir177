@@ -41,7 +41,7 @@
 
 ## 📫 Let’s Connect
 - 📧 Email: **nh4589696@gmail.com**  
-- 💼 LinkedIn: [linkedin.com/in/nasirhussain](www.linkedin.com/in/nasirhussain-)  
+- 💼 LinkedIn: [linkedin.com/in/nasirhussain](https://www.linkedin.com/in/nasirhussain-/)  
 - 💻 GitHub: [github.com/nasir177](https://github.com/nasir17)  
 
 😄 Pronouns: He/Him  
