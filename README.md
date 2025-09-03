@@ -1,6 +1,6 @@
 # 👋 Hi, I’m Nasir Hussain  
 
-### 📊 Aspiring Data Analyst | 🧑‍💻 Computer Applications Student (2026) | 🌏 Future Tech Professional in Japan  
+### 📊 Aspiring Data Analyst | 🧑‍💻 Computer Applications Student (2026) | 
 
 ---
 
